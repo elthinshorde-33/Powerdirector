@@ -218,4 +218,4 @@ PowerDirector is available as a **complete free version** with all features and 
 Take your video editing skills to the next level! Download **PowerDirector** today and start creating stunning videos effortlessly.
 
 ---
-**Last updated:** 2026-09-17 19:29:47 UTC
+**Last updated:** 2026-09-17 22:36:49 UTC
